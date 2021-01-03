@@ -1,1 +1,1 @@
-# Light-Is-Like-Water
+# Light is Like Water
